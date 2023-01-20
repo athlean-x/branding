@@ -1,1 +1,1 @@
-# ATHLEAN-X Branding Material
+# ATHLEAN-X Branding
